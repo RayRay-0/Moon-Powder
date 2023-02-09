@@ -11,3 +11,13 @@ I WANNT APPEL. I NEED APLEP. GIVE. MEY. APPLE. MONVHMONCHMONCHNOMNOM NOM NOM dev
 *MNYONCH AM AM AM NOM NOMNOM EATTS CRONCH CRUNSHHhhHHHCHHH* thxthx
 
 didn i do wit foww yuu... :c
+
+======================================
+
+apple bottom jean (vibes) 
+
+boots with the fur (vibes) 
+
+got the whole damn club, looking straight at her 
+
+(vibes)
